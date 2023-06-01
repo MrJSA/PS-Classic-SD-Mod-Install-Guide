@@ -1,1 +1,1 @@
-# PS-Classic-SD-Mod-Installation
+# PS-Classic-SD-Mod-Install-Guide
